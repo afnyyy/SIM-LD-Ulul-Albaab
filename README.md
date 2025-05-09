@@ -34,7 +34,7 @@ Report final project [link](https://github.com/cinditrifs/SIM-LD-Ulul-Albaab/blo
 
 # Video Conference & Feedback
 
-Sekretaris https://youtu.be/QjRzFL3hvh8
+Sekretaris 
 
 Admin https://youtu.be/ydjEeuYwFao
 
